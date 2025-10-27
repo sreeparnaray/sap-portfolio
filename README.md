@@ -1,1 +1,1 @@
-# sreeparnaray.github.io-sap-portfolio
+# sreeparnaray.github.io
